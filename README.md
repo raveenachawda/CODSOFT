@@ -1,2 +1,2 @@
 https://raveenachawda.github.io/CODSOFT
-https://raveenachawda.github.io/CODSOFT/Landing page
+https://raveenachawda.github.io/CODSOFT/Landingpage
